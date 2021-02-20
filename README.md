@@ -8,7 +8,7 @@
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Bottlecaps/blob/master/65c15d7731ea.png)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Bottlecaps/blob/master/735145cfe0a4.png)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Bottlecaps/blob/master/7d181aa88fdb.png)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Bottlecaps/blob/master/Ami9f112d88-7102-46fd-8508-7b3975617f61.png)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Bottlecaps/blob/master/Ami9d232c05-e8cd-482c-828e-3588d842c245.png)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Bottlecaps/blob/master/EgNCtZ0X0AAuuud.jpeg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Bottlecaps/blob/master/EiJQUIIWsAIJFeH.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Bottlecaps/blob/master/bowman20200826a.pdf)
